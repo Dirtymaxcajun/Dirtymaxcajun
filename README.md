@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dirtymaxcajun
-- 👀 I’m interested in diesle trucks, drift and rally cars, and learning everyhting that I can in IT.
+- 👀 I’m interested in diesle trucks, drift and rally cars, and learning everything that I can in IT.
 - 🌱 I’m currently learning Python. But, will be learning everything that I can.
 - 💞️ I’m looking to collaborate on anything that I can to get my name out there.
 - 📫 How to reach me at my email, CTrahan87@gmail.com
